@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Fernandoydy
+- 🌱 I’m currently learning ...
+- 📫 Brazil
